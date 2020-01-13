@@ -1,2 +1,0 @@
-# bajcsy-bazilika
-bajcsy-bazilika
